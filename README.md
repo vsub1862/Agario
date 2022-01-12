@@ -4,6 +4,9 @@
   
   ![2022-01-10-01-24-06](https://user-images.githubusercontent.com/90798678/148743440-cc7302ae-d150-4fce-b152-e7a09ea100ec.gif)
 
+ ## Video
+
+Video: https://youtu.be/UCQitU5sXm8
   
  
 ## Game Description
